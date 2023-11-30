@@ -9,14 +9,14 @@ The Protagonist is Tommy shelbya fictional character and the main protagonist in
 
 **Here's a brief overview of Tommy Shelby and the general storyline:**
 
->Tommy Shelby:
-Tommy is the second eldest of the Shelby siblings and is known for his strategic thinking, intelligence, and ability to stay calm under pressure. Despite his involvement in criminal activities, he is portrayed as a complex character with a sense of honor and loyalty to his family.>
+>Tommy Shelby:>
+>Tommy is the second eldest of the Shelby siblings and is known for his strategic thinking, intelligence, and ability to stay calm under pressure. Despite his involvement in criminal activities, he is portrayed as a complex character with a sense of honor and loyalty to his family.>
 
 *Storyline:
-The series begins with the aftermath of World War I, and the Shelby family, led by Tommy, is involved in various illegal activities, including racketeering, gambling, and smuggling. As the series progresses, the Shelby family faces challenges from rival gangs, law enforcement, and political forces.
+The series begins with the aftermath of World War I, and the Shelby family, led by Tommy, is involved in various illegal activities, including racketeering, gambling, and smuggling. As the series progresses, the Shelby family faces challenges from rival gangs, law enforcement, and political forces.*
 
-Tommy's ambition drives him to climb the social and political ladder, often making deals with powerful figures. The show explores themes of power, family, loyalty, and the impact of war on individuals and society. Throughout the seasons, viewers witness the Shelby family's rise to prominence and the personal and professional challenges they face.
+*Tommy's ambition drives him to climb the social and political ladder, often making deals with powerful figures. The show explores themes of power, family, loyalty, and the impact of war on individuals and society. Throughout the seasons, viewers witness the Shelby family's rise to prominence and the personal and professional challenges they face.*
 
-The series also features historical events and figures, such as the Russian Revolution and historical gang conflicts. As the story unfolds, Tommy's relationships, alliances, and conflicts become central to the narrative, creating a gripping and intense crime drama.
+*The series also features historical events and figures, such as the Russian Revolution and historical gang conflicts. As the story unfolds, Tommy's relationships, alliances, and conflicts become central to the narrative, creating a gripping and intense crime drama.*
 
-"Peaky Blinders" has gained widespread acclaim for its writing, acting, and period-specific atmosphere. It has received numerous awards and has a dedicated fan base. Keep in mind that my knowledge cutoff is in January 2022, so there may have been additional seasons or developments in the storyline since then.*
+*"Peaky Blinders" has gained widespread acclaim for its writing, acting, and period-specific atmosphere. It has received numerous awards and has a dedicated fan base. Keep in mind that my knowledge cutoff is in January 2022, so there may have been additional seasons or developments in the storyline since then.*
