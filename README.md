@@ -1,7 +1,6 @@
  # appdev
 *My first repository*
-**Hello my name is Onin Pipo and my favorite tv show is [Peaky Blinders](https://www.netflix.com/watch/80003008?trackId=255824129&tctx=0%2C0%2C7889f682-acba-4057-bebe-806afcb08a57-92568565%2C7889f682-acba-4057-bebe-806afcb08a57-92568565%7C2%2Cunknown%2C%2C%2C%2C%2CVideo%3A80002479%2CminiDpPlayButton
-0)**
+**Hello my name is Onin Pipo and my favorite tv show is [Peaky Blinders](https://www.netflix.com/watch/80003008?trackId=255824129&tctx=0%2C0%2C7889f682-acba-4057-bebe-806afcb08a57-92568565%2C7889f682-acba-4057-bebe-806afcb08a57-92568565%7C2%2Cunknown%2C%2C%2C%2C%2CVideo%3A80002479%2CminiDpPlayButton)**
 *As the genre of the show is crime, politics, and thriller. 
 The Protagonist is Tommy shelbya fictional character and the main protagonist in the television series "Peaky Blinders." The show is a British crime drama created by Steven Knight, and it first premiered in 2013. Tommy Shelby is portrayed by actor Cillian Murphy.*
 
