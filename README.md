@@ -9,8 +9,8 @@ The Protagonist is Tommy shelbya fictional character and the main protagonist in
 
 **Here's a brief overview of Tommy Shelby and the general storyline:**
 
->Tommy Shelby:>
->Tommy is the second eldest of the Shelby siblings and is known for his strategic thinking, intelligence, and ability to stay calm under pressure. Despite his involvement in criminal activities, he is portrayed as a complex character with a sense of honor and loyalty to his family.>
+>Tommy Shelby:
+Tommy is the second eldest of the Shelby siblings and is known for his strategic thinking, intelligence, and ability to stay calm under pressure. Despite his involvement in criminal activities, he is portrayed as a complex character with a sense of honor and loyalty to his family.>
 
 *Storyline:
 The series begins with the aftermath of World War I, and the Shelby family, led by Tommy, is involved in various illegal activities, including racketeering, gambling, and smuggling. As the series progresses, the Shelby family faces challenges from rival gangs, law enforcement, and political forces.*
